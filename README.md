@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @shubhankar-prabhat
-- 🌱 currently learning computer engineering 
 - Contact me on :-
                 [Instagram](https://instagram.com/shubhankar_prabhat)
                 [LinkedIN](https://www.linkedin.com/in/shubhankar-prabhat/)          
